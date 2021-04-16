@@ -6,7 +6,7 @@ I focus on IT field but sometime also help my network with other jobs
 
 Please do not hesitate to ask me for further information. 
 
-Connect me via https://www.linkedin.com/in/leephuong/ OR skype live:natsuyuki91
+Connect me via https://www.linkedin.com/in/leephuong/ OR skype ID: natsuyuki91
 
 ...and apply CV to me to find a job 
 
